@@ -6,7 +6,7 @@
 
 　　 　 　　　　　　　　　　　　　　　　　　　　　　　 　![](https://komarev.com/ghpvc/?username=die-of-death&color=1c1b17&style=plastic&label=　　　　　🎭　　　　　)
 
-　　　　　　　　　　　　　　　　　　　　　　　　[twitter](https://x.com/ihflulz)　　𓏵　　[atabook](https://artful.atabook.org/)
+　　　　　　　　　　　　　　　　　　　　　　　　　[twitter](https://x.com/ihflulz)　　𓏵　　[atabook](https://artful.atabook.org/)
 <p align="center">
 <img src="https://files.catbox.moe/xuvip0.png" width="200" height="400" />
 </p>
